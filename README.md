@@ -1,5 +1,5 @@
-Header
+Hi, im Artem or Tezooka
 
-About me
+i dont know who i am help me((
 
-Languges and Tools
+Web dev(still bad)
