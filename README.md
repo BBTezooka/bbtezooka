@@ -1,4 +1,4 @@
-Hi, im Artem or Tezooka
+Hi, im Artem
 
 
 
