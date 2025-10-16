@@ -2,4 +2,4 @@ Hi, im Artem
 
 
 
-Web dev(still bad)
+Web dev(not bad for now)
